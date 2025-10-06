@@ -4,7 +4,7 @@
 <div align="center">
   <img height="50" src="https://i.postimg.cc/zGTQM0kY/ezgif-115f2b9b39f550.gif"  />
 </div>
- <p align="center">. lucien or casino - it / they <br>. mostly afk , w2i or int on straw page ! <br> . if needed urg , dm on discord ( .casinno )
+ <p align="center">. lucien or casino - it / they <br>. mostly afk , w2i or int on straw page ! <br> 
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=casino-core&label=.%20%5Eo%5E&color=9a1825&style=flat" alt="casino-core" /> </p>
 <div align="center">
